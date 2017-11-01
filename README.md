@@ -1,0 +1,1 @@
+[Lethita](https://mh.tiancity.com/homepage/event/heroes/?id=11)
